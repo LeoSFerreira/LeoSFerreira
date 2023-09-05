@@ -1,1 +1,1 @@
-### Olá, sou o Leonardo, bem-vindo 👋
+### Olá! Sou o Leonardo, bem-vindo 👋
